@@ -1,17 +1,15 @@
 # Let It Be, Observer
 ## How To Smooth Your Waters
-
-Observe your thoughts,
-do not control,
-do not push away,
-observe
+Observe your thoughts, do not control, do not push away, observe
 (allow to flow with breath)
 
-Observe your breath, 
-do not begin with exercise,
-do not exert control . . at first
+Observe your breath, do not begin with exercise, do not exert control . . at first
 
 Observe your creation (senses)
+
+## Knowns
+Controlling your breathing lends control over your nervous system.
+Meditating during sleep is possible and greatly beneficial. 
 
 
 # Mumbles
