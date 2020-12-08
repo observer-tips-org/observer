@@ -22,3 +22,8 @@ What was it like to have awakened
 without ever having gone to sleep?
 
 Sustain and observe the moment in smooth waters. There is only present.
+
+# Contribute
+## GitHub
+Create a GitHub account to contribute by adding to, removing, or modifying this page. 
+https://github.com/observer-tips-org/observer
