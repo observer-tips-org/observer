@@ -13,6 +13,7 @@ Appreciate some every day.
 Do not tell it to go away. <br />
 Do not try to change it, or weaken it. <br />
 Be with it. Welcome it. <br />
+Smooth your waters. <br />
 
 ## Knowns
 Controlling your breathing lends control over your nervous system. <br />
