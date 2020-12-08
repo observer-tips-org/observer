@@ -12,15 +12,16 @@ You do not control your thoughts. You can feed yourself positive/necessary thoug
 It is a problem to avoid a perspective. Be empathetic and understand why you are. <br />
 Begin your day dedicated to you and your internal world. Do not be controlled by another's. <br />
 Do not embrace the ego / fixed mind. Accept your physical death daily. <br />
-Utilize times of turmoil / change to be an observer of your internal self and bring about real change. <br />
+Utilize times of great turmoil / change to be an observer of your internal self and bring about real change. <br />
 You do control your perception of reality by the abstractions you have created internally. <br />
+Do not seek external reward; provide yourself reward from internal. <br />
+You will never know everything. <br />
+Always be open to new information; especially so if it could change your perspective. <br />
 
 ## Mumbles
 What's it like to go to sleep, and never wake up? <br />
 What was it like to have awakened without ever having gone to sleep? <br />
 Sustain and observe the moment in smooth waters. There is only present. <br />
-All I know is that I know nothing. <br />
-I am a fool. <br />
 
 ### Words
 awareness, compassion, wisdom, openness <br />
