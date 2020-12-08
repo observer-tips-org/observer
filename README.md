@@ -13,7 +13,6 @@ It is a problem to avoid a perspective. Be empathetic and understand why you are
 Begin your day dedicated to you and your internal world. Do not be controlled by another's. <br />
 Do not embrace the ego / fixed mind. Accept your physical death daily. <br />
 
-
 ## Mumbles
 What's it like to go to sleep, and never wake up? <br />
 What was it like to have awakened without ever having gone to sleep? <br />
@@ -24,3 +23,6 @@ awareness, compassion, wisdom, openness <br />
 mindfulness, breathing, meditation <br />
 interoception, exteroception <br />
 depression, 
+
+
+https://www.facebook.com/observertips/
