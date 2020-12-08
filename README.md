@@ -10,6 +10,9 @@ Observe your creation (senses)
 ## Knowns
 Controlling your breathing lends control over your nervous system.
 Meditating during sleep is possible and greatly beneficial. 
+You are not your brain/mind nor emotions.
+You do not control your thoughts. You can feed yourself positive/necessary thoughts, however.
+It is a problem to avoid a perspective. Be empathetic and understand why you are.
 
 
 # Mumbles
