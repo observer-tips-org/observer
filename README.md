@@ -5,9 +5,14 @@ Observe your breath, do not begin with exercise, do not exert control . . at fir
 Observe your creation (senses) <br />
 
 ## Appreciate
-Appreciate that you are alive.
-Appreciate that you have a physical body.
-Appreciate that 
+Appreciate that you are alive. <br />
+Appreciate that you have a physical body. <br />
+Appreciate some every day.
+
+## [insert negative emotion/mental state ]
+Do not tell it to go away. <br />
+Do not try to change it, or weaken it. <br />
+Be with it. Welcome it. <br />
 
 ## Knowns
 Controlling your breathing lends control over your nervous system. <br />
