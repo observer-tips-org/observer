@@ -1,30 +1,33 @@
 # Let It Be, Observer
 ## How To Smooth Your Waters
-Observe your thoughts, do not control, do not push away, observe
-(allow to flow with breath)
-
-Observe your breath, do not begin with exercise, do not exert control . . at first
-
-Observe your creation (senses)
+Observe your thoughts, do not control, do not push away, observe (allow to flow with breath) <br />
+Observe your breath, do not begin with exercise, do not exert control . . at first <br />
+Observe your creation (senses) <br />
 
 ## Knowns
-Controlling your breathing lends control over your nervous system.
-Meditating during sleep is possible and greatly beneficial. 
-You are not your brain/mind nor emotions.
-You do not control your thoughts. You can feed yourself positive/necessary thoughts, however.
-It is a problem to avoid a perspective. Be empathetic and understand why you are.
+Controlling your breathing lends control over your nervous system. <br />
+Meditating during sleep is possible and greatly beneficial. <br />
+You are not your brain/mind nor emotions. <br />
+You do not control your thoughts. You can feed yourself positive/necessary thoughts, however. <br />
+It is a problem to avoid a perspective. Be empathetic and understand why you are. <br />
+Begin your day dedicated to you and your internal world. Do not be controlled by another's. <br />
 
 
 # Mumbles
-What's it like to go to sleep,
-and never wake up?
+What's it like to go to sleep, and never wake up? <br />
+What was it like to have awakened without ever having gone to sleep? <br />
+Sustain and observe the moment in smooth waters. There is only present. <br />
 
-What was it like to have awakened
-without ever having gone to sleep?
+## Words
+awareness, compassion, wisdom, openness <br />
+mindfulness, breathing, meditation <br />
 
-Sustain and observe the moment in smooth waters. There is only present.
+
+
+
+
 
 # Contribute
 ## GitHub
-Create a GitHub account to contribute by adding to, removing, or modifying this page. 
+Create a GitHub account to contribute by adding to, removing, or modifying this page. <br />
 https://github.com/observer-tips-org/observer
