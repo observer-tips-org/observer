@@ -4,6 +4,11 @@ Observe your thoughts, do not control, do not push away, observe (allow to flow 
 Observe your breath, do not begin with exercise, do not exert control . . at first <br />
 Observe your creation (senses) <br />
 
+## Appreciate
+Appreciate that you are alive.
+Appreciate that you have a physical body.
+Appreciate that 
+
 ## Knowns
 Controlling your breathing lends control over your nervous system. <br />
 Meditating during sleep is possible and greatly beneficial. <br />
@@ -22,6 +27,7 @@ Always be open to new information; especially so if it could change your perspec
 What's it like to go to sleep, and never wake up? <br />
 What was it like to have awakened without ever having gone to sleep? <br />
 Sustain and observe the moment in smooth waters. There is only present. <br />
+Continuously dilate your space/time; from mole hills with elaborate tunnels to the forever unknown universe. <br />
 
 ### Words
 awareness, compassion, wisdom, openness <br />
