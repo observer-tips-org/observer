@@ -9,7 +9,7 @@ Appreciate that you are alive. <br />
 Appreciate that you have a physical body. <br />
 Appreciate some every day.
 
-## [insert negative emotion/mental state ]
+## [insert disliked emotion/mental state ]
 Do not tell it to go away. <br />
 Do not try to change it, or weaken it. <br />
 Be with it. Welcome it. <br />
