@@ -13,21 +13,11 @@ It is a problem to avoid a perspective. Be empathetic and understand why you are
 Begin your day dedicated to you and your internal world. Do not be controlled by another's. <br />
 
 
-# Mumbles
+## Mumbles
 What's it like to go to sleep, and never wake up? <br />
 What was it like to have awakened without ever having gone to sleep? <br />
 Sustain and observe the moment in smooth waters. There is only present. <br />
 
-## Words
+### Words
 awareness, compassion, wisdom, openness <br />
 mindfulness, breathing, meditation <br />
-
-
-
-
-
-
-# Contribute
-## GitHub
-Create a GitHub account to contribute by adding to, removing, or modifying this page. <br />
-https://github.com/observer-tips-org/observer
