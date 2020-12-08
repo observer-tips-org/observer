@@ -28,6 +28,7 @@ You do control your perception of reality by the abstractions you have created i
 Do not seek external reward; provide yourself reward from internal. <br />
 You will never know everything. <br />
 Always be open to new information; especially so if it could change your perspective. <br />
+No one is perfect. We all have our problems / inner demons. <br />
 
 ## Mumbles
 What's it like to go to sleep, and never wake up? <br />
