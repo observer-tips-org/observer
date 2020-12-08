@@ -12,6 +12,7 @@ You do not control your thoughts. You can feed yourself positive/necessary thoug
 It is a problem to avoid a perspective. Be empathetic and understand why you are. <br />
 Begin your day dedicated to you and your internal world. Do not be controlled by another's. <br />
 Do not embrace the ego / fixed mind. Accept your physical death daily. <br />
+Utilize times of turmoil / change to be an observer of your internal self and bring about real change. <br />
 
 ## Mumbles
 What's it like to go to sleep, and never wake up? <br />
@@ -22,7 +23,7 @@ Sustain and observe the moment in smooth waters. There is only present. <br />
 awareness, compassion, wisdom, openness <br />
 mindfulness, breathing, meditation <br />
 interoception, exteroception <br />
-depression, 
+depression, anxiety,  <br />
 
 
 https://www.facebook.com/observertips/
