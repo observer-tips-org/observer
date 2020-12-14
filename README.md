@@ -16,10 +16,10 @@ Be with it. Welcome it. <br />
 Smooth your waters. <br />
 
 ## addiction
-any behavior or substance use, <br />
+addiction is any behavior or substance use, <br />
 which provides temporary pleasure or relief, <br />
 but suffer negative consequence with inability to give it up. <br />
- <br />
+(Dr. Gabor Mate)  <br />
 addictions are always an attempt to solve a problem, but are not the primary problem <br />
 the addicted individuals just want to be like "normal" human beings <br />
 substance use = almost always self medicating <br />
