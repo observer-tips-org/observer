@@ -16,10 +16,10 @@ Be with it. Welcome it. <br />
 Smooth your waters. <br />
 
 ## addiction
-addictions are always an attempt to solve a problem, but are not the primary problem
-the addicted individuals just want to be like "normal" human beings
-substance use = almost always self medicating
-(Dr. Gabor Mate)
+addictions are always an attempt to solve a problem, but are not the primary problem <br />
+the addicted individuals just want to be like "normal" human beings <br />
+substance use = almost always self medicating <br />
+(Dr. Gabor Mate) <br />
 
 ## Knowns
 Controlling your breathing lends control over your nervous system. <br />
