@@ -40,6 +40,14 @@ You will never know everything. <br />
 Always be open to new information; especially so if it could change your perspective. <br />
 No one is perfect. We all have our problems / inner demons. <br />
 
+## meditating on love
+yourself <br />
+a loved one <br />
+a neutral person <br />
+a difficult person <br />
+all beings <br />
+(Mingyur Rinpoche)
+
 ## Mumbles
 What's it like to go to sleep, and never wake up? <br />
 What was it like to have awakened without ever having gone to sleep? <br />
