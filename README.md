@@ -15,6 +15,12 @@ Do not try to change it, or weaken it. <br />
 Be with it. Welcome it. <br />
 Smooth your waters. <br />
 
+## addiction
+addictions are always an attempt to solve a problem, but are not the primary problem
+the addicted individuals just want to be like "normal" human beings
+substance use = almost always self medicating
+(Dr. Gabor Mate)
+
 ## Knowns
 Controlling your breathing lends control over your nervous system. <br />
 Meditating during sleep is possible and greatly beneficial. <br />
